@@ -1,2 +1,4 @@
-- Hi, welcome to my profile.
-- ⭐Im NobelD, only seeing things to do.
+- Hi, welcome to my profile⭐
+- Im NobelD, only seeing things to do 🐈
+- Still learning more thins :)
+- EN/ES
