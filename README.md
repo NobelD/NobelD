@@ -1,4 +1,4 @@
 - Hi, welcome to my profile⭐
 - Im NobelD, only seeing things to do 🐈
-- Still learning more thins :)
+- Still learning more things :)
 - EN/ES
